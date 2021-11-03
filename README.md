@@ -42,4 +42,8 @@
 ![image](https://user-images.githubusercontent.com/93015185/140050738-e8f09b06-af1b-4da9-a1be-d1c9534c7bb9.png)
 ![image](https://user-images.githubusercontent.com/93015185/140050800-d9a8adbb-bfea-4a1d-9d54-8c945150b706.png)
 
-8. 
+8. BOLA
+
+![image](https://user-images.githubusercontent.com/93015185/140051012-64607e72-32a8-4e0d-8cb6-5672a38e344a.png)
+![image](https://user-images.githubusercontent.com/93015185/140051103-a9f4d08c-286d-4c1e-b693-5de2756f4653.png)
+
