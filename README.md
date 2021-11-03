@@ -17,3 +17,6 @@
 ![image](https://user-images.githubusercontent.com/93015185/140048615-12cca8a6-6a43-416a-86d2-630d4a8cf2d3.png)
 ![image](https://user-images.githubusercontent.com/93015185/140048734-3cea940c-7308-4bae-9be4-10e8578c84de.png)
 ![image](https://user-images.githubusercontent.com/93015185/140049029-593372a8-04bb-45d5-a8a5-97a02a732ed0.png)
+
+4. PRISMA SEGITIGA
+
